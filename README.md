@@ -1,4 +1,5 @@
 Privacy Policy for Dread Drive: Undead Roads
+
 Last updated: 24-12-2024
 
 This Privacy Policy explains how Dread Drive: Undead Roads ("we", "our", "us") collects, uses, and protects your data.
